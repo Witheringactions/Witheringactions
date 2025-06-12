@@ -1,3 +1,4 @@
+# 𝚇𝚒𝚘 𝚂𝚑𝚎𝚗𝚊𝚗𝚒𝚐𝚊𝚗𝚜 
 uhhh im rlly bad at doing introductions but heres a few things abt me! (NOTE: most of thse things are listed in my strawpage aswell.)
 
 ₍^. .^₎⟆ BYI So first off im a pretty shy person for the most part.. if we int it’s most likely gonna be you inting first. I have social anxiety and it’s kinda hard for me to walk up to people and have a full-on convo with them </3 BUT once we start getting close im very open-minded! (˶˃ ᵕ ˂˶) My main language is english, AMERICAAAA 🦅 Also a caps personn!!!
