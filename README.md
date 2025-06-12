@@ -22,3 +22,5 @@ Basic dni criteria
 Saiki k, outer banks, toilet bound Hanako-kun, Madoka Magica, I Love Amy, She-Ra, Forsaken, Miraculous Ladybug, Regretevator, Phighting, Jjk, Sonic the Hedgehog, and Lego Monkie King! Fav artists are Lumi Athena, Odetari, Femtanyl, Doja Cat, Kali uchis, Tyler the Creator, Tv Girl, And Kanii! (but i mostly js listen to whatever sounds good)
 
 ANYWAYS thats it, if I missed anything, you could check my strawpage out! ᐢ..ᐢ TYSMM FOR READING THIS IF U DID
+
+![mahou shoujo madoka magica eyes GIF](https://github.com/user-attachments/assets/7a62c1bb-78c6-4691-9d83-a2b4a8f05a7c)
