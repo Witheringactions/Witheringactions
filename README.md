@@ -2,7 +2,9 @@ uhhh im rlly bad at doing introductions but heres a few things abt me! (NOTE: mo
 
 ₍^. .^₎⟆ BYI So first off im a pretty shy person for the most part.. if we int it’s most likely gonna be you inting first. I have social anxiety and it’s kinda hard for me to walk up to people and have a full-on convo with them </3 BUT once we start getting close im very open-minded! (˶˃ ᵕ ˂˶) My main language is english, AMERICAAAA 🦅 Also a caps personn!!!
 
-DNI (·•᷄ࡇ•᷅ ) Basic dni criteria ⋆ People who sexualize everything
+DNI (·•᷄ࡇ•᷅ )
+Basic dni criteria
+⋆ People who sexualize everything
 
 ⋆ says slurs on a daily basis as a form of humor (its not cute or funny)
 
