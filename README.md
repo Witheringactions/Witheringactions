@@ -6,6 +6,7 @@ uhhh im rlly bad at doing introductions but heres a few things abt me! (NOTE: mo
 DNI (·•᷄ࡇ•᷅ )
 
 Basic dni criteria
+
 ⋆ People who sexualize everything
 
 ⋆ says slurs on a daily basis as a form of humor (its not cute or funny)
